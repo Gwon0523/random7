@@ -2,8 +2,7 @@
 
 # 이준혁
 닉네임 : uopak
-좋아하는 게임 : The Long Dark, Subanutica
-
+좋아하는 게임 : The Long Dark, Subnautica
 
 # 오윤혁
 닉네임: oyh9
