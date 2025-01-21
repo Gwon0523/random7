@@ -1,5 +1,10 @@
 # random7
 
+# 이준혁
+닉네임 : uopak
+좋아하는 게임 : The Long Dark, Subanutica
+
+
 # 오윤혁
 닉네임: oyh9
 좋아하는 게임 : rpg게임, 오픈월드
