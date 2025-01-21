@@ -4,6 +4,10 @@
 닉네임 : uopak
 좋아하는 게임 : The Long Dark, Subanutica
 
+# 김민경
+닉네임: SoundGhost
+좋아하는 게임: 몬스터 헌터
+
 # 정재권
 닉네임 : Gwon0523    
 좋아하는 게임 : RPG류 게임
