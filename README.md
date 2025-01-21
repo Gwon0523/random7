@@ -1,5 +1,8 @@
 # random7
 
+# 이준혁
+닉네임 : uopak
+좋아하는 게임 : The Long Dark, Subanutica
 
 # 정재권
 닉네임 : Gwon0523    
